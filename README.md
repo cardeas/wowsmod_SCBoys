@@ -1,0 +1,2 @@
+有史以来第一个有实战（负）加成的语音包，是二五仔就赶紧下载啊，还等什么。神圣的F2连接着我们
+Famous Chinese StarCraft streamer HUANGXUDONG and the F91,just download this voice mod for thier bless.We are bound by the F2, the sacred union of our every thought and motion!
